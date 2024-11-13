@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @clairevmurphy
+- 👀 I’m interested in quilting, true crime, music, and hiking.
+- 🌱 I’m currently learning Obsidian, but more importantly, starting my coding journey!
+- 💞️ I welcome all tips, tricks, and best practices!  
+- 📫 quiltedclaire@gmail.com 
+- 😄 Pronouns: she/her/hers
+- ⚡ Fun fact: Mary Louise Parker calls me Murph
